@@ -1,4 +1,8 @@
 ![](https://media1.tenor.com/images/d35679a70d0b0ea47d541475105285a3/tenor.gif?itemid=13024140)
+![](https://cdn.discordapp.com/emojis/394101112652693526.gif?v=1)
+![](https://cdn.discordapp.com/emojis/394101112652693526.gif?v=1)
+![](https://cdn.discordapp.com/emojis/394101112652693526.gif?v=1)
+![](https://cdn.discordapp.com/emojis/394101112652693526.gif?v=1)
 ### Hi there 👋
 
 <!--
